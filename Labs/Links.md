@@ -1,0 +1,1 @@
+* https://entra.microsoft.com/
